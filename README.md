@@ -1,0 +1,8 @@
+- 👋 Maria Eduarda Formagini
+- nasci dia 22/12/2008 
+- 👀 estudante do ensino médio 
+- 🌱 moro no interior 
+- 💍 16/06/2024
+- 📫 sou de manfrinópolis
+- ♑ capricornio
+- 🏐 jogo volei 
